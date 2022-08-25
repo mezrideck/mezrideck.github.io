@@ -1,1 +1,0 @@
-# mezrideck.github.io
